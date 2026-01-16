@@ -1,5 +1,5 @@
 # 💫 About Me:
-A thorough, analytical postgraduate student in finance with a solid foundation in data processing, operations, and financial analysis. I recently received an MSc in Finance from Dublin City University and have experience with fund accounting, reconciliations, reporting, and market research. Strong Excel abilities, business acumen, and the ability to deliver accurate, timely analysis in busy environments are all exhibited. competent in answering financial questions, assisting with audits, and using data-driven analysis to increase process effectiveness. extremely driven to contribute to asset management, treasury, and finance operations in a fast-paced setting.
+Dedicated analytical postgraduate student in finance with a solid foundation in data processing, operations, and financial analysis. I recently received an MSc in Finance from Dublin City University and have experience with fund accounting, reconciliations, reporting, and market research. Strong Excel abilities, business acumen, and the ability to deliver accurate, timely analysis in busy environments are all exhibited. competent in answering financial questions, assisting with audits, and using data-driven analysis to increase process effectiveness. extremely driven to contribute to asset management, treasury, and finance operations in a fast-paced setting.
 
 
 ## 🌐 Socials:
